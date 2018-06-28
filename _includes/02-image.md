@@ -1,1 +1,1 @@
-! [Image of B&W Lion] (https://www.hd-wallpapersdownload.com/script/bulk-upload/black-and-white-lion-picture-dowload.jpg)
+![Image of Lion](https://media.gettyimages.com/photos/lion-in-high-grass-picture-id494856046)
