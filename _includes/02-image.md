@@ -1,1 +1,1 @@
-![Image of Lion](https://media.gettyimages.com/photos/lion-in-high-grass-picture-id494856046)
+![Image of Lion](https://media.gettyimages.com/photos/yawning-lion-picture-id150320727)
